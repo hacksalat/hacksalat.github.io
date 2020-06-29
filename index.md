@@ -6,3 +6,6 @@ und wir schenken Euch 60 Minuten je Stunde! Los geht's!
 * Unendlich salat
 * Die Kombination von hack & salat
 
+Wie der große Hack Salat bereits sagte:
+
+> In der Praxis ist der Unterschied zwischen Theorie und Praxis weitaus größer als in der Theorie. 

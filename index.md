@@ -9,3 +9,5 @@ und wir schenken Euch 60 Minuten je Stunde! Los geht's!
 Wie der große Hack Salat bereits sagte:
 
 > In der Praxis ist der Unterschied zwischen Theorie und Praxis weitaus größer als in der Theorie. 
+
+<img src="https://elektrozwerge.files.wordpress.com/2013/01/p1020297.jpg?w=300&h=225"/>
